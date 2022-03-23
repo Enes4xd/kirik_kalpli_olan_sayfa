@@ -1,0 +1,1 @@
+# kirik_kalpli_olan_sayfa
